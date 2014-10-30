@@ -5,7 +5,7 @@ Step 1: Strap an LCD screen to your personal being
 
 Step 2: Live-stream tweets to your chest
 
-![Tweeting Rainbow](http://i.imgur.com/keVWP97.jpg)
+![Tweeting Rainbow](http://i.imgur.com/uhZHRgf.jpg)
 
 ## Hardware
 
