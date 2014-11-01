@@ -7,6 +7,10 @@ Step 2: Live-stream tweets to your chest
 
 ![Tweeting Rainbow](http://i.imgur.com/uhZHRgf.jpg)
 
+Put it on your back! Take it for a spin! You can go anywhere!
+[TNSR 1](http://cycling.frenzied.us/2014-10-30-Thursday_Night_Social_Ride/img_3647.jpg)
+[TNSR 2](http://cycling.frenzied.us/2014-10-30-Thursday_Night_Social_Ride/img_3650.jpg)
+
 ## Hardware
 
 You need:
